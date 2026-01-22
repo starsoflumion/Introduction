@@ -22,13 +22,11 @@ literally on 24/7 ( after school / at home / weekends )
 
 dnc my skins btw ,,, wait whys this here this is an introduction .
 
-literally shelly from dw 💔💔
-
 ok bye
 
+WAIT ALSO DONT TAKE INSPIRATION STRICTLY PLEASE!! .
 
 
 
 
-
-wait also get me to 50 folower pls trust ill give you a free moth plush ♥️
+wait also get me to 80 folower pls trust ill give you a free moth plush ♥️

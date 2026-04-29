@@ -18,8 +18,8 @@ semi - artist , extroverted .
 
 c + h freely unless with someone / dni ! 
 
-
-
-
-
-i love berrybot goodbye yeah FUCK i odnt like making intros , strawp coming soon tho :)
+.
+.
+.
+ 
+i love berrybot goodbye yeah FRICK i odnt like making intros , strawp coming soon tho :)

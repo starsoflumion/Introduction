@@ -1,6 +1,7 @@
 <div align="center">
   
-<img width="500" height="500" alt="2026_06_16_0ot_Kleki" src="https://github.com/user-attachments/assets/a114d96c-69b1-4b97-9d38-de721e5e397a" />
+<img width="500" height="500" alt="2026_06_16_0ot_Kleki" src="https://github.com/user-attachments/assets/0f2a6aac-a307-44f7-8614-7d8a45eaae0e" />
+
 
 <div align="center">
 

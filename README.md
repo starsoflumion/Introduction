@@ -27,12 +27,13 @@ orca , cat , and moth lover
 — basic dni ( p3dos , z00s , radq , dark/proshipprs , and just pure weirdos )
 <div align="center">
   
-— tisha x vee ,flowervision (as in trying to ship with me, if you ship it i dont mind but i dislike these alot so pretty much thin ice a bit . )
+— people who gen just ragebait for 'fun' ? dude wtf r u doing
 
   <div align="center">
     
-— sends or spams p*rn humor / sexual joke
+— sends or spams p*rn humor / sexual jokes
 <div align="center">
-  
-— berrybot haters ? my otp . . .
+
 <div align="center>
+  
+**iwc/iwec:** incest shippers (iwec) , therians (iwc/iwec) , yumes (iwc/or just int actually, i dont rlly care lol) 

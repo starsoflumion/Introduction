@@ -10,7 +10,7 @@ ascended / lumion ︶︶ 。 ⊹
 
 <div align="center">
 
-︶︶ 。she / they ( or she / her )
+︶︶ 。she / her )
 
 <div align="center">
   

@@ -2,15 +2,15 @@
 
 <div align="center">
 
-*for people who didnt check strawp (ts an old repository)*
+*for people who didnt check strawp (this is an old repository)*
 
  <div align="center">
    
-ascended / lumion ︶︶ 。 ⊹
+ascended / lumion ︶
 
 <div align="center">
 
-︶︶ 。she / her )
+she / her )
 
 <div align="center">
   
@@ -18,7 +18,7 @@ orca , cat , and moth lover
 
 <div align="center">
   
-**︶︶ 。 ⊹ dni :**
+**︶ ⊹ dni :**
 <div align="center">
   
 — basic dni ( p3dos , z00s , radq , dark/proshipprs , and just pure weirdos )
@@ -34,3 +34,5 @@ orca , cat , and moth lover
 <div align="center>
   
 **iwc/iwec:** incest shippers (iwec) , therians (iwc/iwec) , yumes (iwc/or just int actually, i dont rlly care lol) 
+
+more in sp...

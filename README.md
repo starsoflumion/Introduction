@@ -1,38 +1,9 @@
+-
 <div align="center">
-
-<div align="center">
-
-*for people who didnt check strawp (this is an old repository)*
-
+ <img width="832" height="40" alt="image" src="https://github.com/user-attachments/assets/fff717e8-03e6-4f95-ba3c-14f755bb8b51" />
  <div align="center">
-   
-ascended / lumion ︶
+ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friendships !</a>
 
-<div align="center">
+, 
+wip ;-;
 
-she / her )
-
-<div align="center">
-  
-orca , cat , and moth lover
-
-<div align="center">
-  
-**︶ ⊹ dni :**
-<div align="center">
-  
-— basic dni ( p3dos , z00s , radq , dark/proshipprs , and just pure weirdos )
-<div align="center">
-  
-— people who gen just ragebait for 'fun' ? dude wtf r u doing
-
-  <div align="center">
-    
-— sends or spams p*rn humor / sexual jokes
-<div align="center">
-
-<div align="center>
-  
-**iwc/iwec:** incest shippers (iwec) , therians (iwc/iwec) , yumes (iwc/or just int actually, i dont rlly care lol) 
-
-more in sp...

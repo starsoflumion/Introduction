@@ -20,7 +20,7 @@ ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friend
 <div align="centertop">
 
 <a href="https://starsoflumion.atabook.org" style="color: inherit;">꒰ 新book ꒱ ‎ ‎‎ ‎</a>
-<a href="https://starsoflumion.straw.page" style="color: inherit;"> ꒰  straw / sp‎ ꒱</a> <a href="https://[starsoflumion.straw.page](https://guns.lol/lumi0n)" style="color: inherit;">  ‎  ‎  ‎ ꒰ guns‎ ꒱</a>
+<a href="https://starsoflumion.straw.page" style="color: inherit;"> ꒰  straw / sp‎ ꒱</a> <a href="https://https://guns.lol/lumi0n" style="color: inherit;">  ‎  ‎  ‎ ꒰ guns‎ ꒱</a>
 
 
 <img width="2048" height="157" alt="blueberry" src="https://github.com/user-attachments/assets/1d0fa880-e7b1-4bb3-9e1f-cfed40f5874a" />

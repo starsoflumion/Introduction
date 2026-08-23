@@ -1,14 +1,14 @@
 <div align="center"> 
- <a href="https://creatures-of-sonaria-official.fandom.com/wiki/Kret%C5%9Bnik" style="color: inherit;">꒰ kretsnik's ‎‎ ‎</a> n1 fan.. ‎  ‎ 
-
-![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=orange&amp;label=+Pancakes  )
 
  <img width="2048" height="195" alt="pancake" src="https://github.com/user-attachments/assets/9d53db45-9812-40ad-827f-f58f8044c98b" />
 
 <div align="center">
  <img width="832" height="40" alt="image" src="https://github.com/user-attachments/assets/fff717e8-03e6-4f95-ba3c-14f755bb8b51" />
  <div align="center">
+  
 ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friendships !</a>
+
+ ![](https://komarev.com/ghpvc/?username=bubblymoth&amp;color=orange&amp;label=+Pancakes  )
 
 ┄┄　﹒　᧔𐓪᧓　﹒　┄┄
 

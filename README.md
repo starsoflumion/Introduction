@@ -1,5 +1,5 @@
 <div align="center"> 
- <a href="https://starsoflumion.atabook.org" style="color: inherit;">꒰ kretsnik's ‎‎ ‎</a> n1 fan..
+ <a href="https://creatures-of-sonaria-official.fandom.com/wiki/Kret%C5%9Bnik" style="color: inherit;">꒰ kretsnik's ‎‎ ‎</a> n1 fan..
  <img width="2048" height="195" alt="pancake" src="https://github.com/user-attachments/assets/9d53db45-9812-40ad-827f-f58f8044c98b" />
 
 <div align="center">

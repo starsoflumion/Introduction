@@ -9,7 +9,7 @@ ty <a href="https://github.com/pt-friendships" style="color: inherit;">pt-friend
 <img width="343" height="230" alt="2026_08_23_0ko_Kleki" src="https://github.com/user-attachments/assets/8007dadc-a5a2-408c-9bcf-ec8f6c6b9c26" />  wip..
 <div align="centertop">
 
-<a href="https://[starsoflumion.atabook.org](https://guns.lol/lumi0n)" style="color: inherit;">꒰ 新book ꒱ ‎ ‎‎ ‎</a>
+<a href="https://[starsoflumion.atabook.org]" style="color: inherit;">꒰ 新book ꒱ ‎ ‎‎ ‎</a>
 <a href="https://starsoflumion.straw.page" style="color: inherit;"> ꒰  straw / sp‎ ꒱</a> <a href="https://[starsoflumion.straw.page](https://guns.lol/lumi0n)" style="color: inherit;">  ‎  ‎  ‎ ꒰ guns‎ ꒱</a>
 
 
